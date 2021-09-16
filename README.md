@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kaixingocean
+- 👋 Hi, I’m @TashiChotso
 - 👀 I’m interested in  nature and learning new technology 
 - 🌱 I’m currently learning  data analytic
 - 💞️ I’m looking to collaborate on  business 
